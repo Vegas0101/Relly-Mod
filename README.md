@@ -1,1 +1,1 @@
-qdb kullananlar için 10 numara 5 yıldız bir bot umarım memnun olursunuz sizde her hangi  bir sorun olursa Discord = Rellyxśr#0990
+Arkadaşlar Selam Ben Relly Naber Umarım İyisinizdir Bugün Qdb Kullanan Enayiler İçin Bir Mod Hazırladım Umarım Memnun Olursunuz Bir Sorun Vs Olursa Discord = Rellyxśr#0990
